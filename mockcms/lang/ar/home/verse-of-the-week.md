@@ -1,0 +1,5 @@
+Verset de la Semaine
+
+"Si vous étiez du monde, le monde aimerait ce qui est à lui; mais parce que vous n'êtes pas du monde, et que je vous ai choisis du milieu du monde, à cause de cela le monde vous hait."
+
+- Jean 15:19
