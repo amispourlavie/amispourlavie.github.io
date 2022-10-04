@@ -1,5 +1,3 @@
-Verset de la Semaine
+"Et si je distribue tous mes biens aux pauvres, si même je livre mon corps aux flammes, mais que je n'ai pas l'amour, cela ne me sert à rien. Maintenant donc ces trois choses restent: la foi, l'espérance, l'amour; mais la plus grande des trois, c'est l'amour."
 
-"Si vous étiez du monde, le monde aimerait ce qui est à lui; mais parce que vous n'êtes pas du monde, et que je vous ai choisis du milieu du monde, à cause de cela le monde vous hait."
-
-- Jean 15:19
+- 1 Corinthiens 13:13

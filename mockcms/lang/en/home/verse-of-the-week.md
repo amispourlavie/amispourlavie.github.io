@@ -1,5 +1,3 @@
-Verset de la Semaine
+"Si j'ai le don de prophétie, la compréhension de tous les mystères et toute la connaissance, si j'ai même toute la foi jusqu'à transporter des montagnes, mais que je n'ai pas l'amour, je ne suis rien."
 
-"Si vous étiez du monde, le monde aimerait ce qui est à lui; mais parce que vous n'êtes pas du monde, et que je vous ai choisis du milieu du monde, à cause de cela le monde vous hait."
-
-- Jean 15:19
+- 1 Corinthiens 13:2

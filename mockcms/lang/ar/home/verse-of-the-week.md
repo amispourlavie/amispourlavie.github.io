@@ -1,5 +1,3 @@
-Verset de la Semaine
+"Bien-aimés, puisque Dieu nous a tant aimés, nous devons nous aussi nous aimer les uns les autres."
 
-"Si vous étiez du monde, le monde aimerait ce qui est à lui; mais parce que vous n'êtes pas du monde, et que je vous ai choisis du milieu du monde, à cause de cela le monde vous hait."
-
-- Jean 15:19
+- 1 Jean 4:11
